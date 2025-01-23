@@ -11,7 +11,7 @@ esto va a tratar sobre el cambio climatico.
 
 6.-esto va a ser como una infografia.
 
-7.-voy a poner por lo menos 10 maneras de disminuir la contaminacion del ambiente.
+7.-voy a poner por lo menos 5 maneras de disminuir la contaminacion del ambiente.
 
 8.-las soluciones que voy a dar se podran hacer desde casa.
 
